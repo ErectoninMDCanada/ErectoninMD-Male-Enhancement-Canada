@@ -1,6 +1,6 @@
 ErectoninMD Male Enhancement Gummies are designed to support male performance, stamina, and confidence. These gummies provide a natural and convenient way to enhance testosterone levels, improve blood flow, and boost overall vitality. Unlike pills or synthetic alternatives, these gummies offer an easy-to-use solution with natural ingredients that promote male health.
 
-# ☘📣[Special Price for Sale:ErectoninMD Male Enhancement Gummies !! Available ! Order Now!!](https://rebrand.ly/erectoninmdgummies)
+## ☘📣[Special Price for Sale:ErectoninMD Male Enhancement Gummies !! Available ! Order Now!!](https://rebrand.ly/erectoninmdgummies)
 
 # What is ErectoninMD Male Enhancement?
 
